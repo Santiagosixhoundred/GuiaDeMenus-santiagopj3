@@ -29,3 +29,23 @@ Parmigiana di melanzane – Berenjena al horno con tomate, queso parmesano y moz
 Tiramisú – Postre clásico de café, queso mascarpone, cacao y bizcochos.
 
 Gelato – Helado artesanal italiano, conocido por su textura cremosa.
+
+# Bebidas recomendadas
+
+Vinos italianos:
+
+Chianti – Vino tinto ideal para pastas con salsas rojas y carnes.
+
+Prosecco – Vino espumoso, perfecto para aperitivos.
+
+Barolo – Vino tinto robusto, adecuado para carnes y platos intensos.
+
+Verdicchio o Pinot Grigio – Vinos blancos frescos para mariscos y platos ligeros.
+
+Aperitivos y digestivos:
+
+Aperol Spritz – Cóctel refrescante para iniciar la comida.
+
+Limoncello – Licor de limón típico del sur de Italia, ideal para después de la comida.
+
+Café: Espresso o macchiato para finalizar la comida.
