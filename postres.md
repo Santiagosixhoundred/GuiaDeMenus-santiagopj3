@@ -29,3 +29,15 @@ Flan – Postre de huevo y leche con caramelo líquido.
 Helado / Gelato – Preparación fría, cremosa y dulce, con múltiples sabores.
 
 Pastel de frutas – Bizcocho ligero con frutas frescas o confitadas.
+
+# Bebidas recomendadas
+
+Café – Espresso, capuchino o café con leche, ideal para acompañar la mayoría de los postres.
+
+Té – Variedades como té negro, verde, chai o infusiones de hierbas para equilibrar la dulzura.
+
+Vinos dulces – Como el Moscato, Sauternes o vino de hielo.
+
+Licores – Amaretto, Baileys, Cointreau o Grand Marnier, para combinar o añadir en preparaciones.
+
+Chocolate caliente – Perfecto para postres de invierno o repostería más cálida.
