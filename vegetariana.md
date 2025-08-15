@@ -41,3 +41,21 @@ Agua de coco – Hidratante y refrescante.
 Bebidas vegetales – Leche de almendra, avena o soja, tanto para cocinar como para beber.
 
 Kombucha – Bebida fermentada con probióticos, popular en dietas saludables.
+
+# Consejos para disfrutar o preparar cocina vegetariana
+
+🥦 Asegura variedad para cubrir nutrientes: Combina legumbres, cereales, frutos secos y vegetales.
+
+🌈 Incluye muchos colores: Cuantos más colores naturales en el plato, más variedad nutricional.
+
+🥑 Usa grasas saludables: Aceite de oliva, aguacate, semillas y frutos secos.
+
+🍳 Sustituye proteínas animales por vegetales: Tofu, tempeh, seitán o legumbres son excelentes opciones.
+
+🍲 Prueba especias y hierbas frescas: Para dar sabor sin necesidad de sal o grasas extras.
+
+⏲️ Planifica para evitar carencias: Incluye fuentes de hierro, vitamina B12 y omega-3 si es necesario.
+
+🥕 Cocina de manera creativa: Prueba diferentes técnicas como asar, hornear, saltear o cocinar al vapor.
+
+🍽️ Disfruta la comida consciente: Comer con atención y disfrutar de la textura y sabor de cada ingrediente.
