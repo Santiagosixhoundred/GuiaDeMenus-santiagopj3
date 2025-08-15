@@ -21,3 +21,12 @@ Costillas marinadas y cocinadas a fuego lento con una mezcla de miel, soja, jeng
 Cordero al Comino (Xinjiang o estilo del norte):
 Cordero cortado en tiras finas, salteado con comino, chiles secos y cebolla. Es un plato con mucho carácter y sabor especiado.
 
+# 🍶 Bebidas Recomendadas
+🫖 Tradicionales sin alcohol:
+
+Té verde (Longjing o Jasmine): Limpia el paladar y ayuda a digerir las grasas.
+
+Té Oolong: Ideal para carnes más grasosas como el pato o el cerdo.
+
+Agua caliente: Muy común en la mesa china, ayuda a la digestión.
+
