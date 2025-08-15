@@ -25,3 +25,28 @@ Costillas de cordero asadas al horno, generalmente con costra de hierbas. Se aco
 
 Rôti de Porc (Cerdo Asado):
 Lomo de cerdo marinado con ajo y mostaza, cocinado lentamente al horno. Sencillo pero lleno de sabor.
+
+# 🍷 Bebidas Recomendadas
+🍷 Vinos
+
+Bordeaux (tinto): Ideal para Boeuf Bourguignon o Entrecôte.
+
+Pinot Noir: Ligero, perfecto para Coq au Vin o pato.
+
+Côtes du Rhône: Combina bien con cordero o cerdo.
+
+Châteauneuf-du-Pape: Vino robusto para carnes intensas y platos con salsas.
+
+🍸 Otras Bebidas
+
+Champagne Brut: Sorprendente maridaje con carnes más grasas como el pato.
+
+Cognac o Armagnac: Como digestivo tras una comida fuerte.
+
+Sidra (en Normandía o Bretaña): Para platos de cerdo.
+
+🫖 Sin alcohol
+
+Agua con gas con rodaja de limón o hierbas.
+
+Infusiones de hierbas (como manzanilla o verbena) para el cierre de la comida.
