@@ -43,3 +43,13 @@ Biryani – Arroz basmati especiado con carne, vegetales o ambos.
 Naan / Roti / Paratha – Panes tradicionales indios.
 
 Raita – Yogur con pepino, hierbas y especias, para equilibrar el picante.
+
+# Lassi – Bebida de yogur, puede ser dulce (con mango o rosa) o salada (con comino).
+
+Chai masala – Té negro cocido con leche y especias como cardamomo, jengibre y canela.
+
+Agua con limón y menta (Nimbu Pani) – Refrescante y digestiva.
+
+Cerveza india (Kingfisher, Taj Mahal) – Suelen acompañar bien platos picantes.
+
+Vino blanco o rosado ligero – Si se desea maridar con vino, opta por vinos frescos que suavicen las
