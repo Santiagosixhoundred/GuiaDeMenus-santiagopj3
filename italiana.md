@@ -49,3 +49,19 @@ Aperol Spritz – Cóctel refrescante para iniciar la comida.
 Limoncello – Licor de limón típico del sur de Italia, ideal para después de la comida.
 
 Café: Espresso o macchiato para finalizar la comida.
+
+# Consejos para disfrutar o recrear una cocina italiana
+
+🥫 Usa ingredientes frescos y de temporada: El secreto de la cocina italiana está en la calidad del tomate, la albahaca, el aceite de oliva y el queso.
+
+🍝 No abuses de las salsas: La pasta debe estar bien al dente y la salsa debe complementar, no cubrir, el sabor.
+
+🍅 Preparar platos simples pero sabrosos: A veces con tres o cuatro ingredientes se logra un plato espectacular.
+
+🧀 No escatimes en quesos: Parmesano, pecorino, mozzarella y ricotta son básicos en muchas recetas.
+
+🍽️ Disfruta la comida en compañía: La cocina italiana es sinónimo de reunión familiar y social.
+
+⏳ Tómate tu tiempo: Comer despacio y disfrutar cada bocado es parte de la cultura italiana.
+
+🌿 Usa hierbas frescas: Albahaca, orégano, romero y perejil para realzar el sabor natural. 
