@@ -11,3 +11,21 @@ Ambiente de la cocina: Espacios frescos, coloridos y llenos de productos frescos
 Principios básicos: Uso de ingredientes frescos, técnicas que respetan la textura y el sabor natural, y combinaciones para aportar proteínas vegetales.
 
 Colores y materiales: Predominan los colores vivos de frutas y verduras, utensilios como procesadores, batidoras, y ollas para cocinar al vapor o saltear.
+
+# Platos principales típicos de la cocina vegetariana
+
+Ensalada de quinoa con vegetales y frutos secos – Mezcla fresca y nutritiva de quinoa, tomate, pepino, aguacate y nueces.
+
+Lasaña de verduras – Capas de pasta, berenjena, calabacín, espinacas y queso ricotta o bechamel vegetal.
+
+Curry de garbanzos y verduras – Guiso especiado con leche de coco, tomate, cebolla y muchas especias.
+
+Hamburguesa vegetal – Elaborada con legumbres, avena, verduras y especias, servida con pan integral.
+
+Tacos de champiñones al pastor – Tacos con setas marinadas y especiadas, servidos con cebolla y cilantro.
+
+Falafel con salsa de yogur – Croquetas de garbanzo fritas acompañadas de salsa fresca.
+
+Risotto de espárragos y setas – Cremoso y sabroso, usando caldo vegetal.
+
+Sopa minestrone – Sopa italiana con verduras, legumbres y pasta o arroz.
