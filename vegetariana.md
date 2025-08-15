@@ -29,3 +29,15 @@ Falafel con salsa de yogur – Croquetas de garbanzo fritas acompañadas de sals
 Risotto de espárragos y setas – Cremoso y sabroso, usando caldo vegetal.
 
 Sopa minestrone – Sopa italiana con verduras, legumbres y pasta o arroz.
+
+# Bebidas recomendadas
+
+Jugos naturales y smoothies verdes – Combinaciones de frutas y verduras como espinaca, manzana y pepino.
+
+Tés e infusiones – Té verde, rooibos, manzanilla o té de hierbas para acompañar y ayudar a la digestión.
+
+Agua de coco – Hidratante y refrescante.
+
+Bebidas vegetales – Leche de almendra, avena o soja, tanto para cocinar como para beber.
+
+Kombucha – Bebida fermentada con probióticos, popular en dietas saludables.
