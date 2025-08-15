@@ -41,3 +41,19 @@ Michelada – Cerveza preparada con jugo de limón, salsas y especias.
 Pulque – Bebida tradicional fermentada del maguey, con sabor único.
 
 Café de olla – Café preparado con canela y piloncillo, tradicional para acompañar postres o desayunos.
+
+# Consejos para disfrutar o recrear una cocina mexicana
+
+🌶️ Controla el nivel de picante: La cocina mexicana usa varios tipos de chiles; ajusta según tu tolerancia.
+
+🌽 Usa maíz nixtamalizado para tortillas y tamales para un sabor auténtico y mejor textura.
+
+🥑 Incluye ingredientes frescos como aguacate, cilantro y limón para equilibrar sabores.
+
+🧄 No olvides las salsas y moles: Son el alma de muchos platos y aportan complejidad y riqueza.
+
+🍽️ Prepara platos variados y coloridos para lograr una experiencia completa.
+
+🧂 Usa especias tradicionales como comino, orégano mexicano y canela para profundizar los sabores.
+
+🎉 Disfruta la comida en grupo: La comida mexicana es un acto social, ideal para compartir.
