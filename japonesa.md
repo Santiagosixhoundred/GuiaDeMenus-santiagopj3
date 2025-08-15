@@ -29,3 +29,15 @@ Tonkatsu – Cerdo empanado y frito, servido con salsa tonkatsu y col rallada.
 Okonomiyaki – Tortilla japonesa hecha con repollo, huevo, harina y variados ingredientes, como mariscos o cerdo.
 
 Miso Soup (Sopa de miso) – Caldo hecho con pasta de miso, tofu, algas y cebollino, servido en casi todas las comidas.
+
+# Bebidas recomendadas
+
+Sake – Vino de arroz tradicional, puede ser frío o caliente según la ocasión y tipo.
+
+Té verde (Matcha o Sencha) – Infusión que acompaña cualquier comida japonesa, especialmente el té verde en polvo para ceremonias.
+
+Shochu – Licor destilado hecho de cebada, batata o arroz.
+
+Cerveza japonesa – Marcas como Asahi, Sapporo o Kirin, muy populares con la comida japonesa.
+
+Umeshu – Licor dulce de ciruela japonesa, ideal como aperitivo o digestivo.
