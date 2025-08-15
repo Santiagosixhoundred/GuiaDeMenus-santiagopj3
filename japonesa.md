@@ -41,3 +41,19 @@ Shochu – Licor destilado hecho de cebada, batata o arroz.
 Cerveza japonesa – Marcas como Asahi, Sapporo o Kirin, muy populares con la comida japonesa.
 
 Umeshu – Licor dulce de ciruela japonesa, ideal como aperitivo o digestivo.
+
+# Consejos para disfrutar o recrear una cocina japonesa
+
+🥢 Respeta la frescura del ingrediente: El pescado debe ser de calidad sushi-grade y los vegetales frescos.
+
+🍚 Cuida la presentación: Cada plato debe verse armonioso, con porciones pequeñas y bien distribuidas.
+
+🧂 Equilibra los sabores: Dulce, salado, ácido y amargo deben estar presentes pero en armonía.
+
+🍜 Aprende a preparar caldos base: Como el dashi, esencial en muchas recetas.
+
+🍣 Maneja bien el arroz: El arroz para sushi debe estar bien lavado, cocido y sazonado con vinagre.
+
+🥢 Usa los utensilios tradicionales: Palillos, cuencos y platos especiales mejoran la experiencia.
+
+🎎 Disfruta la comida con calma y respeto: Comer en Japón es un ritual que implica gratitud y atención.
