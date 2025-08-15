@@ -11,3 +11,21 @@ Colores y materiales: Madera clara, papel de arroz (shoji), cerámica artesanal,
 Principios básicos: Sabor umami, equilibrio entre dulce, salado, ácido y amargo, y el respeto por el producto natural.
 
 Presentación: Cada plato se sirve con cuidado, en pequeñas porciones, resaltando la armonía y la belleza visual.
+
+# Platos principales típicos de la cocina japonesa
+
+Sushi – Arroz avinagrado combinado con pescado crudo, mariscos o vegetales.
+
+Sashimi – Lonjas finas de pescado o marisco crudo, servidas sin arroz.
+
+Tempura – Verduras y mariscos rebozados y fritos en aceite muy caliente para lograr una textura ligera y crujiente.
+
+Ramen – Sopa de fideos en caldo de carne, pollo o miso, acompañada de carne, huevo, y verduras.
+
+Udon – Fideos gruesos de trigo, servidos en caldo o fritos.
+
+Tonkatsu – Cerdo empanado y frito, servido con salsa tonkatsu y col rallada.
+
+Okonomiyaki – Tortilla japonesa hecha con repollo, huevo, harina y variados ingredientes, como mariscos o cerdo.
+
+Miso Soup (Sopa de miso) – Caldo hecho con pasta de miso, tofu, algas y cebollino, servido en casi todas las comidas.
