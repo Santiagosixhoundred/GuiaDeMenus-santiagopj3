@@ -11,3 +11,21 @@ Colores y materiales: Uso frecuente de madera natural, azulejos decorativos, cer
 Utensilios típicos: Ollas de barro, tablas de cortar para pasta fresca, molinillos de pimienta, y siempre pasta fresca a la vista.
 
 Decoración: Frascos con especias, aceites de oliva, botellas de vino y hierbas frescas como albahaca y romero.
+
+# Platos principales típicos de la cocina italiana
+
+Pasta al pomodoro – Pasta con salsa de tomate fresca, ajo, albahaca y aceite de oliva.
+
+Risotto alla milanese – Arroz cremoso con azafrán y caldo.
+
+Lasagna – Capas de pasta, carne, salsa bechamel y queso gratinado.
+
+Pizza Margherita – Base de tomate, mozzarella, albahaca fresca y aceite de oliva.
+
+Osso Buco – Estofado de jarrete de ternera con salsa de verduras y vino blanco.
+
+Parmigiana di melanzane – Berenjena al horno con tomate, queso parmesano y mozzarella.
+
+Tiramisú – Postre clásico de café, queso mascarpone, cacao y bizcochos.
+
+Gelato – Helado artesanal italiano, conocido por su textura cremosa.
