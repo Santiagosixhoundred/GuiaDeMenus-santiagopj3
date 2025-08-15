@@ -30,3 +30,26 @@ Té Oolong: Ideal para carnes más grasosas como el pato o el cerdo.
 
 Agua caliente: Muy común en la mesa china, ayuda a la digestión.
 
+# 🧧 Consejos para Disfrutar la Cocina China de Carnes
+
+Respeta el equilibrio: La cocina china busca armonía. Acompaña la carne con arroz blanco, fideos o vegetales para balancear.
+
+No abuses del picante: Muchas recetas pueden ser intensas (especialmente en Sichuan o Hunan), así que ajusta según tu tolerancia.
+
+Cocina rápida pero precisa: El wok se usa a fuego alto por poco tiempo; ten todos los ingredientes preparados antes de cocinar.
+
+Marinados y salsas: Son clave en la cocina china. Ingredientes como salsa de soja, jengibre, ajo y aceite de sésamo realzan cualquier carne.
+
+Textura importa: Los chinos valoran la textura tanto como el sabor. Algunas carnes se cocinan con almidón o se fríen para lograr crocancia.
+
+Acompaña con té o cerveza ligera: Estas bebidas equilibran el umami y las salsas densas sin sobrecargar el paladar.
+
+Corta en trozos pequeños: En la mesa china no se usan cuchillos. La carne siempre va troceada y lista para tomarse con palillos.
+
+# sugerencia 🍶 Con alcohol:
+
+Baijiu: Licor fuerte tradicional chino. Se toma en ocasiones especiales, generalmente con platos de carne intensos.
+
+Cerveza china ligera (como Tsingtao o Harbin): Refrescante y acompaña bien platos salados y picantes.
+
+Vino de ciruela o vino de arroz Shaoxing: Dulce y aromático, ideal con carnes especiadas o platos agridulces.
