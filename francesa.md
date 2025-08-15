@@ -50,3 +50,19 @@ Sidra (en Normandía o Bretaña): Para platos de cerdo.
 Agua con gas con rodaja de limón o hierbas.
 
 Infusiones de hierbas (como manzanilla o verbena) para el cierre de la comida.
+
+# sugerencias Consejos para Disfrutar la Cocina Francesa de Carnes
+
+Sigue el orden clásico francés: Entrada ligera (ensalada, paté), plato fuerte (carne con guarnición), queso y postre.
+
+Aprecia la cocción lenta: Muchos platos requieren tiempo. La textura tierna y los sabores intensos son el resultado de paciencia.
+
+No subestimes la salsa: En Francia, la salsa es tan importante como la carne. Aprende a prepararlas o busca versiones tradicionales.
+
+Guarniciones sobrias: Papas gratinadas, vegetales salteados o purés son ideales para acompañar sin robar protagonismo.
+
+El pan es imprescindible: Sirve pan crujiente para acompañar y “limpiar” las salsas del plato.
+
+Marida con intención: Un vino mal elegido puede opacar el plato. Opta por vinos regionales que combinen con el tipo de carne.
+
+Cuidado con los excesos: Aunque los platos pueden ser ricos y grasos, la clave está en las porciones moderadas y el equilibrio.
