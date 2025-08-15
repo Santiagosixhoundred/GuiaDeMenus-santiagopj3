@@ -29,3 +29,15 @@ Quesadillas – Tortilla de maíz o harina rellena de queso y otros ingredientes
 Enchiladas – Tortillas rellenas bañadas en salsa de chile, gratinadas o acompañadas de pollo.
 
 Guacamole – Puré fresco de aguacate con tomate, cebolla, chile y limón.
+
+# Bebidas recomendadas
+
+Aguas frescas – Bebidas naturales a base de frutas, como jamaica (hibisco), tamarindo y horchata (arroz con canela).
+
+Tequila y mezcal – Destilados típicos de agave, consumidos puros o en cócteles.
+
+Michelada – Cerveza preparada con jugo de limón, salsas y especias.
+
+Pulque – Bebida tradicional fermentada del maguey, con sabor único.
+
+Café de olla – Café preparado con canela y piloncillo, tradicional para acompañar postres o desayunos.
