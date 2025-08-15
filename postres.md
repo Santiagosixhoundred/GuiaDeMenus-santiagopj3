@@ -41,3 +41,21 @@ Vinos dulces – Como el Moscato, Sauternes o vino de hielo.
 Licores – Amaretto, Baileys, Cointreau o Grand Marnier, para combinar o añadir en preparaciones.
 
 Chocolate caliente – Perfecto para postres de invierno o repostería más cálida.
+
+# Consejos para disfrutar o preparar postres
+
+🍫 Usa ingredientes de calidad: Chocolate puro, mantequilla fresca y frutas naturales hacen la diferencia.
+
+🕰️ Respeta los tiempos de horneado y enfriado para texturas perfectas.
+
+🎨 Cuida la presentación: El aspecto visual es tan importante como el sabor.
+
+⚖️ Equilibra la dulzura: No todos los postres deben ser excesivamente dulces; combina con ingredientes ácidos o amargos.
+
+🥄 Experimenta con texturas: Combina cremosos, crujientes, suaves y esponjosos para mayor disfrute.
+
+🥚 Sé preciso en las medidas: La repostería es una ciencia, y pequeños cambios afectan el resultado.
+
+🍓 Añade frutas frescas o salsas para darle frescura y color.
+
+❄️ Conserva adecuadamente: Algunos postres requieren refrigeración o envases herméticos para mantener su sabor y textura.
